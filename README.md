@@ -7,7 +7,7 @@
 >>halo nama gw Jojo kalian bisa panggil saya shukuf,saya seorang pelajar berumur 16 tahun,dan masih belajar kode dan ini perkenalan saya
 
 # Akun media
->[instragram](https://www.instagram.com/02_stunt/# "akun instagram gw")
+>[instragram](https://www.instagram.com/02_stunt "akun instagram gw")
 
 #
 ya begitu saja trimakasih
